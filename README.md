@@ -1,1 +1,1 @@
-Halt stand roter Discord ☭
+Halt stand roter Discord☭
